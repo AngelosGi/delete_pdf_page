@@ -1,3 +1,3 @@
-I just wanted to delene a page
+I just wanted to delete a page.
 
 i will add more later.
